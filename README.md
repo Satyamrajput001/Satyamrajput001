@@ -7,6 +7,7 @@ I'm currently learning Computer science and Engineering
 I'm looking to collaborate on...Communication and teamwork
 
 How to reach me ...Email- satyamkumar92633@gmail.com 
+
 linkedin-https://www.linkedin.com/in/satyam-kumar-singh-101a48247
 
 <!---
